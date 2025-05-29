@@ -1,0 +1,5 @@
+- 16 Anos
+- Semi-fluente em Inglês
+- Cursando Técnico de Desenvolvimento em Sistemas no SENAI
+- Fã de Vocaloid
+- Estudante em Piano
