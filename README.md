@@ -1,4 +1,1 @@
-- 16 Anos
-- Semi-fluente em Inglês
-- Fã de Vocaloid
-- Estudante em Piano
+Eu gosto de tocar piano, mexer com programação, escutar musica, ler mangá e tomar banho :)
